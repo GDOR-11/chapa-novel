@@ -1,4 +1,4 @@
-O objetivo de Chapa Novel será promover eventos na área social, cultural, esportiva e comunitária.
+O objetivo de Chapa Novel será promover eventos na área social, cultural, esportiva e comunitária.<br><br><br>
 
 Integrantes da chapa:<br><br>
 1)	Presidente: Pedro Sada Sardá (2ª E): intercambista na Alemanha; aluno visitante e candidato a bolsa de estudos em universidades alemãs; medalhista panamericano e sul-americano de xadrez.<br><br>
